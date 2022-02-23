@@ -1,1 +1,1 @@
-It will continue to be updatedg 
+It will continue to be updated
